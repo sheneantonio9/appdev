@@ -26,7 +26,7 @@ It’s emotional, inspiring, and beautifully filmed.
 ## ⭐ Ratings
 | Category | Rating |
 |-----------|--------|
-| Storyline | 9/10 |
+| Storyline | 10/10 |
 | Acting | 10/10 |
 | Music | 8/10 |
 | Overall | **10/10** |
